@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Adventuric
+- 👀 I’m interested in Programming Languages and Algorithms
+- 🌱 I’m currently learning c++,c#,c and css
+- My Discord is DaAdv3nturic#6969 , If You Want To Suggest Me Any Tips
+- My YT is https://www.youtube.com/channel/UC1Q5skLfj8TiNCjkkDQPZbg
+- I Also Games Like Minecraft And CSGO
