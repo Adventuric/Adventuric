@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Adventuric
 - 👀 I’m interested in Cybersecurity, Cryptography and Quant
 - 🌱 I’m currently learning about Cybersecurity
-- Like playing Badminton and Football in my spare time
+- Like playing Badminton and Table Tennis in my spare time
